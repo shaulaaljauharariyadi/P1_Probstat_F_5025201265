@@ -4,3 +4,5 @@
 
 2.b
 ![Screenshot (448)](https://user-images.githubusercontent.com/103361453/162615658-85436cf9-f8dd-4898-a351-2a9c6a1b83e7.png)
+
+![Screenshot (452)](https://user-images.githubusercontent.com/103361453/162615931-f96239b0-bda1-4425-b59d-4ed31859d95b.png)
